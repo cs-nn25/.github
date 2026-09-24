@@ -1,4 +1,4 @@
-
+# how to install CS triggerbot 2026. Our rare CS triggerbot are fully tested and ready for use.
 
 
 
